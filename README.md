@@ -1,3 +1,3 @@
 ![thomasawww](regular-show-thomas.gif)
-he/him
-fact attack adventure + tfc fans iwc
+<p>he/him</p>
+<p>fact attack adventure + tfc fans iwc i DO not like those fandoms(if it wasnt obvious enough)</p>
