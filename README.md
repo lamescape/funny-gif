@@ -1,2 +1,3 @@
 ![thomasawww](regular-show-thomas.gif)
-he/him i love kerdly
+he/him
+fact attack adventure + tfc fans iwc
